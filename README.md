@@ -1,5 +1,5 @@
 # Minecraft
-We all need a little minecraft. Don't we? Let us all work together so we can get Minecraft unblocked.
+We all need a little gaming time, Don't we? Let us all work together so we can get games unblocked.
 
 
 There are so many website blocking sites and apps out there. At my school, Relay Classroom is the one  we all need to work around.

@@ -1,4 +1,4 @@
-# Minecraft
+# G*mes
 We all need a little gaming time, Don't we? Let us all work together so we can get games unblocked.
 
 

@@ -8,6 +8,6 @@ I've heard of GoGaurdian, but I'm not sure about it. (If anyone would like to em
 
 So, what does every one say to this repository?
 
-Last thing, please don't feel the need to give me any form of money besides cash. I don't have any form of electronic payment methods. Thanks!
+Last thing, please don't feel the need to give me any form of money besides cash. (Feel free to email a request of my home address for contributions of money.) I don't have any form of electronic payment methods. Thanks!
 
 Let's do this, y'all.
